@@ -1,5 +1,5 @@
 # hello-world
-GitHub Tutorial 
+My name is Emmalyn, but people call me Emma. 
 
 i love eggplants. 
 Halo 3, LOL, TF2, or any game that is playable with friends
