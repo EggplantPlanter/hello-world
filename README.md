@@ -12,15 +12,15 @@ Traveling is cool too
 
 Currently:   
 	Undecided major in the Computing Sciences department  
-not sure what i want to do for my future, career, or tomorrow  
-i like school surprisingly, but i still don't know what to do.  
+Not sure what I want to do for my future, career, or tomorrow  
+I like school surprisingly, but I still don't know what to do.  
 
-However, i do have a goal...  
+However, I do have a goal...  
 
   Goal:   
     Pursue happiness and get paid for it.  
 
-What i follow:  
+What I follow:  
 "A day without laughter is a day wasted" - Charlie Chaplin  
 
 Top 3 shows:   
@@ -28,4 +28,4 @@ Top 3 shows:
   Game of Thrones   
   Silicon Valley  
   
-Oh! and i don't plant eggplants, but someday I will for sure.  
+Oh! and I don't plant eggplants, but someday I will for sure.  
