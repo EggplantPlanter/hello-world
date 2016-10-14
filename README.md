@@ -1,13 +1,11 @@
 # hello-world
 My name is Emmalyn, but people call me Emma. 
 
-i love eggplants. 
-Halo 3, LOL, TF2, or any game that is playable with friends
-BOARDGAMES are the shit 
-
-Camping, but never did it before
-
-Tennis or any recreational activity
+i love eggplants.  
+Halo 3, LOL, TF2, or any game that is playable with friends  
+BOARDGAMES are the shit   
+Camping, but never did it before  
+Tennis or any recreational activity  
 
 I want to cliff dive someday, but I don't know how to swim
 
