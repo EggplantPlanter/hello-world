@@ -21,8 +21,7 @@ However, i do have a goal...
     Pursue happiness and get paid for it.  
 
 What i follow:  
-"A day without laughter is a day wasted"  
-  - Charlie Chaplin  
+"A day without laughter is a day wasted" - Charlie Chaplin  
 
 Top 3 shows:   
   It's always sunny in philidelphia  
