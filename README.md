@@ -24,8 +24,8 @@ What i follow:
 "A day without laughter is a day wasted" - Charlie Chaplin  
 
 Top 3 shows:   
-  It's always sunny in philidelphia  
-  Game of thrones   
+  It's Always Sunny in Philidelphia  
+  Game of Thrones   
   Silicon Valley  
   
 Oh! and i don't plant eggplants, but someday I will for sure.  
